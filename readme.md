@@ -14,3 +14,6 @@ L - Gym (Kate)
 
 L - Russian
 74243761751 1
+
+L - Logo
+<https://us04web.zoom.us/j/74234810202?pwd=HPrODgD4tU1WFFjQzRZhSiqbSe8MGb.1> 74234810202 12345
