@@ -6,6 +6,9 @@ I - Russian
 M/I - Math
 <https://us02web.zoom.us/j/87642817753>
 
+M/I - Math systematics
+<https://us06web.zoom.us/j/88156819548>
+
 M - Music (Yana)
 8253769554 6uvr5M
 
