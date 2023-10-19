@@ -1,6 +1,6 @@
 # Meetings
 
-I - Russian
+I - Russian, on Wen
 <https://us04web.zoom.us/j/74675372916?pwd=b3M4cFJxUHFnZnpuU3kyWW8vNzg0QT09> 74675372916 1
 
 M/I - Math
