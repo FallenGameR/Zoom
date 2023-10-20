@@ -1,7 +1,7 @@
 # Meetings
 
 I - Russian, on Wen
-<https://us04web.zoom.us/j/74675372916?pwd=b3M4cFJxUHFnZnpuU3kyWW8vNzg0QT09> 74675372916 1
+<https://us04web.zoom.us/j/74675372916?pwd=b3M4cFJxUHFnZnpuU3kyWW8vNzg0QT09> 74675372916 - 1
 
 M/I - Math
 <https://us02web.zoom.us/j/87642817753>
@@ -18,8 +18,8 @@ L - Gym (Kate)
 L - Russian
 74243761751 1
 
-L - Russian, on Thu
-<https://us04web.zoom.us/j/71515856046?pwd=V3Dw4tZhfqySaMjSGZU9CRKg3fcKxZ.1> 71515856046 55555
+L - Russian, on Thu (changing, update over email)
+<https://us04web.zoom.us/j/2918358985?pwd=wgP4LiriaLDWPJf0P9gZgAZBcXamML.1> 291 835 8985 - 55555
 
 L - Logo
-<https://us04web.zoom.us/j/74234810202?pwd=HPrODgD4tU1WFFjQzRZhSiqbSe8MGb.1> 74234810202 12345
+<https://us04web.zoom.us/j/74234810202?pwd=HPrODgD4tU1WFFjQzRZhSiqbSe8MGb.1> 74234810202 - 12345
