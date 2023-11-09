@@ -1,7 +1,7 @@
 # Meetings
 
 I - Russian, on Wen
-<https://us04web.zoom.us/j/74675372916?pwd=b3M4cFJxUHFnZnpuU3kyWW8vNzg0QT09> 74675372916 - 1
+<https://us04web.zoom.us/j/74675372916?pwd=b3M4cFJxUHFnZnpuU3kyWW8vNzg0QT09> 74675372916 - 1, site for text sharing https://qtext.io/905s
 
 M/I - Math
 <https://us02web.zoom.us/j/87642817753>
