@@ -9,6 +9,9 @@ M/I - Math
 M/I - Math systematics
 <https://us06web.zoom.us/j/88156819548>
 
+I/M/L - Chess
+409-697-1016, 12345
+
 M - Music (Yana)
 8253769554 6uvr5M
 
